@@ -8,3 +8,6 @@ keyi#0001 ( 683391884415991868 )
 ```
 
 **Botun içinde setup sistemi ve bi iki komut ekliyip atıcam beklemede kalın**
+
+
+**AKŞAM ATARIM**
