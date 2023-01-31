@@ -1,0 +1,1 @@
+Akşama Kadar Bekle kanka
